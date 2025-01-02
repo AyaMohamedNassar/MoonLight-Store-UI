@@ -1,1 +1,1 @@
-# MoonLight-Store-UI - Comming Soon
+# MoonLight-Store-UI - Coming Soon
